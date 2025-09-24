@@ -1,5 +1,7 @@
 ## Hi there 👋
-
+- 😄 I am definitely, undoubtedly, absolutely and undisputedly a native natural human being.
+- 🔭 I am not an alien by all means.
+- 🌱 I am not inclined to harm any fauna or flora, apparently including humans, in the earth.
 <!--
 **Transistor-Lucent/Transistor-Lucent** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
